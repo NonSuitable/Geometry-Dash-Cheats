@@ -1,0 +1,1 @@
+Open geometry dash then open mega hack
